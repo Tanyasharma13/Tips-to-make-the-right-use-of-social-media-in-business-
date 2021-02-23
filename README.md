@@ -1,5 +1,5 @@
 # Tips-to-make-the-right-use-of-social-media-in-business-
-Here are few tips to make the right use of social media in business:
+Here are few tips to make the right use of social media in business:<br>
 •	Social Media Content Planning — Building a social media marketing plan for the business is quintessential. To attract your target audience always consider doing the right keyword research and competitive research to help brainstorm content ideas. Always keep an eye on what your competitors and other businesses are doing to accelerate engagement on social media.<br>
 •	Great Social Content — Content always rules when it is about social media marketing. Try to be consistent with other segments of online marketing. Posting regularly is important. Try to deliver valuable information that your target customers find effective and interesting. Any type of content can be shared on social media, it can be a video, social media images, infographics, and more.<br>
 •	A Consistent Brand Image — <a href="https://www.empoweress.in/home-business/the-importance-of-social-media-for-business/">Use of social media in business</a> enables the marketing of your brand image across various social media platforms. Every social media platform has its unique environment, core identity, friendly, fun, and trustworthiness. Social media helps in building a consistent brand image.<br>
